@@ -1,4 +1,4 @@
-Hi, I’m Olga Golovko HTML coder.
+Hi, I’m Olga Golovko web developer.
 I’m interested in website development. I can make up responsive, cross-browser sites from layouts Figma and PSD.
 I’m looking to collaborate on interesting, useful projects together with a professional friendly team
 You can contact me at golovkoov0html@gmail.com
